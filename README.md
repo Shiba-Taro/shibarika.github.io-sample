@@ -1,0 +1,1 @@
+# shibarika.github.io-sample
